@@ -3,4 +3,6 @@ Resume of Ajay Kumar Gupta ,Computer Science and Engineering Undergraduate Stude
 
 
 
-![CVimg](https://user-images.githubusercontent.com/63035732/175772745-266d08fa-3ee2-42d0-8e8e-37c14368b7f6.jpg)
+
+
+![download](https://user-images.githubusercontent.com/63035732/175772978-29615ee5-c4a2-4327-8cb6-2e9b005185c2.png)
